@@ -1,0 +1,2 @@
+# KOLAI
+effective manifesto
